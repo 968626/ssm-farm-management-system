@@ -24,6 +24,7 @@
 
 ### 可访问www.pangpangbysj.com查看其他设计或者联系我
 ** 
+购买可访问https://mbd.pub/o/bread/Zpmak5tr
 
 ![输入图片说明](1.png)
 ![输入图片说明](2.png)
