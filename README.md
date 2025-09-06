@@ -20,11 +20,11 @@
 
 5️⃣ 数据分析：提供图表和统计数据，帮助养殖场主做出决策。
 
- **
 
-### 可访问www.pangpangbysj.com查看其他设计或者联系我
-** 
-购买可访问https://mbd.pub/o/bread/Zpmak5tr
+
+### 定制加微jsjbyzd
+
+源码获取可访问https://mbd.pub/o/bread/Zpmak5tr
 
 ![输入图片说明](1.png)
 ![输入图片说明](2.png)
@@ -36,3 +36,4 @@
 ![输入图片说明](8.png)
 ![输入图片说明](9.png)
 ![输入图片说明](10.png)
+
